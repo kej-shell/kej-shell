@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kej-shell
+- 👀 I’m a student
